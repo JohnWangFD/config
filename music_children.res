@@ -28,3 +28,4 @@ https://soundcloud.com/nurseryrhymesabc/twinkle-twinkle-little-star-1?si=6f5e5a7
 https://soundcloud.com/nurseryrhymesabc/twinkle-twinkle-little-star-7?si=2911e080725849e4b2fd86a547e29449&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
 https://soundcloud.com/nurseryrhymesabc/you-are-my-sunshine-2?si=2ca705c3eb3a4bba8a9005402aa46cc6&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
 https://soundcloud.com/nurseryrhymesabc/you-are-my-sunshine?si=7262a7b0ec934b0bac44dc88041b8096&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
+https://soundcloud.com/father-christmas-official/jingle-bells?in=youst-na/sets/e&si=77c111c2a2594abd92f3bf3e91ed8f9a&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
